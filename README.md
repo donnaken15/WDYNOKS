@@ -1,2 +1,2 @@
 # WDYNOKS
-period (COMING SOON)
+DDR hint hint
